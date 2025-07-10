@@ -19,4 +19,4 @@
 
 如果你正在寻找一个稳定、丰富、无套路的“日本AV免费”平台，不妨收藏本站，每天来看看，总有一部新作让你怦然心动。
 
-<span style="display:none;">[Canonical link](  ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/nln20250710/riben200 ）</span>
